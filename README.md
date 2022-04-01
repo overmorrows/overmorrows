@@ -1,6 +1,2 @@
-          
-          Cole|H6|K9
-            He/Him
-    mostly sitting with friends  
-         offtab perhaps
-      thats all, take care!
+ ❝ Something something, something  
+      Man, we don't have a problem ❞
